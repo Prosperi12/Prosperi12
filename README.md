@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...everything
 - 🌱 I’m currently learning ...C#
 - 💞️ I’m looking to collaborate on ...anything
-- 📫 How to reach me ...well figure it out
+- 📫 How to reach me ...Luigipro327@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
